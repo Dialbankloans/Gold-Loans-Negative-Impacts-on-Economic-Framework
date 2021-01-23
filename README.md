@@ -1,0 +1,2 @@
+# Gold-Loans-Negative-Impacts-on-Economic-Framework
+Gold Loans- among the principal loan facilities in the country has been a very important aspect of the growth in the economic environment. The proper resource allocation of economic instruments has been vital for accelerating the growth process in the country. However, gold loans are not an unmixed blessing as certain indications point out to the fact that successful operations of gold loans are not beneficial all the time and certain negative impacts do crop up due to negligence. 
