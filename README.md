@@ -7,7 +7,7 @@ However, easy lending facilities are disadvantageous as well since there is the 
 Default in Payment of interest amount would thus not be beneficial for the growth of the loan facility as the borrowers would not be inclined to invest their gold in the loan process of the banking institution. This withdrawal tendency would stop the flow of investment in the economy and thereby gold loans would not be as beneficial as expected.<br>
   <b><h3>Conclusion</h3></b>
 <p align="justify">Thus overcoming these negative impacts and effects through adequate measures is instrumental behind the growth of the economic environment. If you have any queries regarding gold loans and need to know the bright side of it, drop your queries in the comment section and our executives will get back to you within the minimum time period.
-<h3>Author Bio<h3>
+<h3>Author Bio</h3>
   
 Gaurav S. Khurana is the Founder and CEO of Dialabank and has had a great career in the Banking and Financial Services Sector. He has an experience of 18 years in the sector and has worked at Senior Roles including National Sales Head at ING Investment Management India and as the Vice President Citibank. A post-graduate from IMT, Ghaziabad. Gaurav started his career as a Named Account Manager in Xerox.<br>
 Being a part of this field for a long time now, he has written many informative articles and blogs benefiting and assisting many in making decisions regarding the policies provided by various banks and non-banking financial companies such as the <b><a href="https://www.dialabank.com/gold-loan/bajaj-finance-gold-loan/">Bajaj Finance gold loan</a></b> policy.
